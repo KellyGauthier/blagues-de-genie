@@ -12,3 +12,7 @@ vous voulez une blague à l'envers ? Riez je raconte après
 – Ah bon, lequel ?
 – J’ai réussi à faire en 15 jours un puzzle sur lequel il y avait écrit « de 3 à 5 ans ».
 comment appelle-t-on une cigogne pas intelligent ? une si conne !
+
+
+
+<iframe width="940" height="747" src="https://www.youtube.com/embed/YItvv8pxwbk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
