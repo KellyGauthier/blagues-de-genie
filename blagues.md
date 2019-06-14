@@ -16,3 +16,8 @@ comment appelle-t-on une cigogne pas intelligent ? une si conne !
 
 
 <iframe width="940" height="747" src="https://www.youtube.com/embed/YItvv8pxwbk" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+Le juge à un type condamné pour avoir tué son père et sa mère :
+– Qu’avez-vous à dire pour votre défense ?
+L’accusé :
+– Vous n’allez pas condamner un pauvre orphelin?
