@@ -21,3 +21,5 @@ Le juge à un type condamné pour avoir tué son père et sa mère :
 – Qu’avez-vous à dire pour votre défense ?
 L’accusé :
 – Vous n’allez pas condamner un pauvre orphelin?
+
+L'an dernier j'étais encore un peu prétentieux, cette année je suis parfait. 
