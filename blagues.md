@@ -8,7 +8,7 @@ quelle est la date de la fête des fumeurs?
 Le 1er juin
 qu'est ce qui est plus merveilleux que de faire tourner des enfants sur un tourniquet ? les arrêter avec une pelle.
 vous voulez une blague à l'envers ? Riez je raconte après
-
 – J’ai battu un record.
 – Ah bon, lequel ?
 – J’ai réussi à faire en 15 jours un puzzle sur lequel il y avait écrit « de 3 à 5 ans ».
+comment appelle-t-on une cigogne pas intelligent ? une si conne !
